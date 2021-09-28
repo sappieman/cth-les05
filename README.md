@@ -1,4 +1,4 @@
-# 2 (dikke) sneetjes luchtig wit brood
+# Kaas tosti
 
  100 tot 150 gram (!) geraspte kaas, liefst een combinatie van cheddar
  100 tot 150 Parmezaan en Gruyere.
