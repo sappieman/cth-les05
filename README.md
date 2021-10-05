@@ -1,6 +1,6 @@
 # Kaas tosti
 
- 100 tot 150 gram (!) geraspte kaas, liefst een combinatie van cheddar
+ 100 tot 150 gram (!) met geraspte kaas, liefst een combinatie van cheddar
  100 tot 150 Parmezaan en Gruyere.
 Ruime hoeveelheid ongezouten boter
 Koekenpan, grillplaat of tosti-ijzer
